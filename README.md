@@ -1,4 +1,4 @@
-# Anna Hernandez-Buces
+# Anna Hernández-Buces
 
 
 Anna Hernández-Buces is an undergraduate student at Miami University.
