@@ -1,7 +1,8 @@
 
-# About Anna Hernández-Buces
-Anna Hernández-Buces is an undergraduate student at Miami University.
-She is majoring in political science and history, and minoring in Arabic.
-A published writer, Anna is an ambitious and hard-working student with a desire
-to pursue a career in news, column, or investigative journalism.
-Follow this website to watch her career progress.
+# Anna The Journalist
+Here I update my progression in my undergraduate experience, as well as my career search.
+Additionally, I have linked my other online publication sites, with the Odyssey Online page being uploaded weekly.
+
+https://www.theodysseyonline.com/user/@anna_hernandez_buces
+https://sortofstudying.wixsite.com/stillmissing
+https://sortofstudying.wixsite.com/sortofstudying
