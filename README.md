@@ -1,5 +1,7 @@
 
 # Résumé
+In PDF format: file:///Users/ahernandezbuces/Downloads/Anna%20Herna%CC%81ndez-Buces%20(1).pdf 
+
 ## Anna Hernández-Buces
 ## College Student and Aspiring Journalist
 ### Education
