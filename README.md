@@ -1,6 +1,3 @@
-# Anna Hernandez-Buces
+# Anna Hernández-Buces
 
 
-[Genesis Project](https://anna.loshernandez.org/presentations/genesis-may-14).
-
-More to come.
