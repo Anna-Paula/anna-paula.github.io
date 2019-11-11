@@ -1,6 +1,8 @@
 # Anna Hernandez-Buces
 
 
-[Genesis Project](https://anna.loshernandez.org/presentations/genesis-may-14).
-
-More to come.
+Anna Hernández-Buces is an undergraduate student at Miami University.
+She is majoring in political science and history, and minoring in Arabic.
+A published writer, Anna is an ambitious and hard-working student with a desire
+to pursue a career in news, column, or investigative journalism.
+Follow this website to watch her career progress. 
